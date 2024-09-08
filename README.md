@@ -1,9 +1,10 @@
 - 👋 Hi, I’m @Shashireddy2366
-- 👀 I’m interested in software developer and finance management
+- 👀 I’m interested in to work on as DATA ANALYST,as SOFTWARE DEVELOPER..
+- 👀 Currently I’m doing my MBA in PRESIDENCY UNIVERSITY BENGALURU KARNATAKA. 
 - 🌱 I’m currently graduated from SRM UNIVERSITY CHENNAI Tamil nadu.
-- 💞️ I’m looking to start my career as software engineer.
+- 💞️ I’m looking to start my career in IT INDUSTRY.
 - 📫 How to reach me :msreddy2366@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him.
 - ⚡ Fun fact: ...
 
 <!---
